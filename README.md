@@ -5,4 +5,5 @@ OPERASI MATRIKS MADE BY KELOMPOK PRIA_MISTERIUS :
 ANGGOTA : 1.) M.ARIEL AFRIZA  241401073
           2.) SYAHID LUKMAN   241401112
 
-LINK GDRIVE : 
+LINK POSTER GDRIVE : https://drive.google.com/drive/folders/1Jye5qkqkce9AKfQfSLfFJWMJu-xzKPeR
+LINK VIDEO YOUTUBE : https://youtu.be/ebJfef148fc?si=_siyXtzlqiQU6TEb
